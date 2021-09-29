@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @TheAffiliator
+- Connecting your Business 
+- 🌱 I’m a Crypto Expert
+- 💞️ I’m looking to collaborate on a Cryto currency setup
